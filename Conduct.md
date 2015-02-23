@@ -2,11 +2,11 @@
 
 Adopted from StudentRND
 
-Draft 2 - Last revised February 22, 2015
+Draft 3 - Last revised February 22, 2015
 
 ## Introduction
 
-We like have fun and build a lot of cool things. At the same time, Ignition is an national community, and we need to make sure that our activities does not prevent others from having fun as well. As such, we have established a simple list of guidelines to provide a safe and welcoming experience that anyone can enjoy.
+We like have fun and build a lot of cool things. At the same time, Ignition is an national community, and we need to make sure that our activities do not prevent others from having fun as well. As such, we have established a simple list of guidelines to provide a safe and welcoming experience that anyone can enjoy.
 
 ## All community members are expected to:
 
