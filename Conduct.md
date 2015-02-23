@@ -28,7 +28,7 @@ Additionally, at all Ignition venues, events, and activities, community members 
 
 ## No means no. Stop means stop. Go away means go away.
 
-Refrain from engaging in behavior that may threaten, harass, or put others at harm. Ask permission before touching other community members or their property, and respect that person’s right to say no. Participants asked to stop any harassing behavior are expected to comply immediately. If you are being harassed, threatened, or harmed (or see it happening to someone else), and you do not feel comfortable handling it yourself, please report it to an appropriate contact as soon as possible.
+Refrain from engaging in behavior that may threaten, harass, or put others at harm. Ask permission before touching other community members or their property, and respect that person’s right to say no. Participants asked to stop any harassing behavior are expected to comply immediately. **If you are being harassed, threatened, or harmed (or see it happening to someone else), and you do not feel comfortable handling it yourself, please report it to an appropriate contact as soon as possible.**
 
 ## Amendments
 
